@@ -1,0 +1,112 @@
+# Tony-100K
+
+[TOC]
+
+![100K](https://imgsa.baidu.com/forum/w%3D580/sign=84a52dc50de9390156028d364bed54f9/3c7f19d5ad6eddc4a9a6211e35dbb6fd53663319.jpg)
+
+## 科技
+
+### 虾兵蟹将(2014)
+
+```
+000foLbppUnEbppWwNbppYFWj15o3K4nPm1ip00sj1a1rzJ77oCsbM7oCx1R7oc3ku7oc8az7nKDtc7nKI2Sp00qoJ7kmweF7kdMzR7kdOce800vNt7kmxQ29nGnR89nG7JwO00iTAa1rCq3akdY6nake1Mjp006Lpp00fn0amJWbNp00BX7g00cs9g00f95O00dwIp00D1Uv00CKK
+```
+
+### 空阵之风(2013)
+
+```
+001h1zj01jqkjnQedLU01ytka01xoda01yJba01w3fp01ziAp01nbap01ezBp015rea01zyramLnzGajvJmBamL7WiE01oOyt01hi0g0rzGTg01eBB7nUn7U7nUosR7nUpOf7nUrad7nUsvb7nUtQ9g01azHg01bUFaggawTa01ydt801wjDO017lAa01wRv
+```
+
+### 汲水龙(2014)
+
+```
+001h1zjnQbgoU01ytka01xoda01yJba01w3fp01ziAp01nbap01ezBp015rea01zyramLnzGajvJmBamL7WiE01oOyt01hi0g0naWsg01eBB7nUn7U7nUosR7nUpOf7nUrad7nUsvb7nUtQ9aggagva01ydt801wjDa01wRvg01hixg01jYtg01mFpj01mE5p00ViPr015si
+```
+
+### 垃圾之王(2014)
+
+```
+001aPwU01ayPg019tIg01bmtt01l3Dp01ADPp01ADjp01ACgp01s1iaknFCmamL1w2j01mo4p01rLsa01tU4a01re8a0j6DpamKXP5p01b5Qp01ejwakO2f6akO4V2g016xNg017SLg019eJg0enO2O010T9401uIfp00XbtO013AtO016hp
+```
+
+
+
+## 弹幕
+
+### 持久概念(2013)
+
+```
+000raGxkih5at00BnOxkimspxkirPexkixd59kRzgLp00MFlp00Nctp00CH1p00qkTp00evAp00NbPj00BDFa00O0La00NIIamKyLb9kRBWI9kREDC9kRHky9kRK1y9kRMHg7kN8mS7kN9I67kNdK37kNf607kNj7U7kNksUinoFbcamKa2YamKfGfr00RfUr006u1E0zOYQ
+```
+
+### 92箭雨-改(2013)
+
+```
+000lLXimFx9dj0r0pO7kdPYi7kig097kmF0Y7kdQMt7kigNi7kmFO87kdRAD7kihBs7kmGCi7kdSoN7kiipD7kmHqt7kdTcY7kijdO7kmIeE7kdU1a7kik207kmJ2P7kdUOl7kikPb7kmJQ17kdVCw7kilDm7kmKEcp00Mnep00Moep00xSM9kzQmv9kVS5I9kW19w9lj2RJp00mBdt00ypUa00IlMa00L2IamKxGB
+```
+
+
+
+## 突击(雷魂战队)
+
+### 杀戮机器(2018)
+
+```
+000i3hU00dJ2amJVm2amJY2WLlEYfbL00gWdp00jW9jphhzz9hGxd39gXtKCgliOsbgmJVm2G004j6r004A2p00otBp00yYpU004Sma004l2U00os8p00tPEp00j5UdjuGmSU01991a00n7aa3fFk1T01fQQa3gsGPa01991gpi7RVa6vK6va6vLYga6vOVDa6vMfHp01iyna0071Xa00wyka00zfgE00rbNp00B9p
+```
+
+### 炼狱花火(2014)
+
+```
+001hurjoVoYlt01c8D9ozbru9ozjeT9ozhm99ozfto9ozdADp01AQvU01bP7t01jV34ozw8sp01Akl9oz9ilNd1egAamKXunamL1bjp01zKramLkN2amLi767eB9Ek7eBasvp01Azi9ejwFya01uEzE1K596p01uoIr011U0
+```
+
+### 炼狱花火(6炮)
+
+```
+001hurjoVoYut01c8D9ozbru9ozjeT9ozhm99ozfto9ozdADp01AQvU01bP7t01jV342xMUsp01yrH9oz9ilNd1egAamKXunamL1bjp01zKramLkN2amLi767eB9Ek7eBasvp01Azia01uEIE1K596r01tR5r01wfVgoQJ6d
+```
+
+### 双斩少女S(2019)
+
+```
+000hd89lekkB9l9Uzj9l9YBd9la3D79l5HUz9l5LWtp00r9uamKdNuamKguq7kifsj7kigNh7kii9f7kijud7kicLn7kie7l7kifbU7kmEJx7kmG5v7kmHqt7kmILr7kmC3B7kmDoz7kr3Wc7kr5ia7kr6D87kr7Y67kr1gg7kr2Bej0RaKbp005DQT01fQQa01daUa6vK6va6vLYga6vOVDa6vMfHp01iynr0058e419VBJ
+```
+
+
+
+## 地核
+
+### 诺亚方舟(2018)
+
+```
+000DjUp00Ugfp01j6Tp01jmmp01iBag0mAKpg00BI8jntp93a00RPaa00Uw64npjczN0dCA5amKlVGamKoCzO00BI8inBX377oUtCm7oUwji7oUz0e7ocrfv7octVr7ocwCn7oczjj7nGC6Y7nGEMU7nGHtQ7krkaw7ke80L7krmjF7kmYIn7kiB3v7k9OYaamKWf8a01dgDr017BLr00cbk
+```
+
+## 狙击
+
+### 攻城梭(2018)
+
+```
+001l3tX017lWw013zTw014URw016gPw017BNw018WLw01aiJj3gCaWp01ATRp01zPbp01ABTp01iRS812h54a01xp6a01ACOE1jLMaamL3UpamL64yamLmsBp0173zp01cFGO013zTO016gPO018WLO01bDI
+```
+
+
+
+## 加速
+
+### 无甲加速器(2018)
+
+```
+000m7JajuQD5ajuSvPajuUoBa00ursa00wkRa00ydCp00IVXp00mCCp00vedp00e22jmK5z1t00mF4t00oxPt00oxPt00oxPt00oxPt00oxPt00oxPt00oxPt00oxPt00oxPt00oxPr005IPr00daP
+```
+
+### 机甲加速器B(2013)
+
+```
+001crSj01jq0jnQetLE01kMEy019LwF01cIQu01ATvr01jqxu01gaSp016uKp01ACwp01A6Yp01ABPp01yIqp01pQ3amLnzGp01gIpamKYSbamL2z7301zfFa01AlAa01xEE
+```
+
+
+
